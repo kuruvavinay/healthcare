@@ -1,0 +1,1 @@
+all rights and copy rights are reserved Kuruva vinay
